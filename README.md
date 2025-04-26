@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="[https://i.imgflip.com/65efzo.gif](https://www.google.co.id/url?sa=i&url=https%3A%2F%2Fproeffico.com%2Fdata-analytic%2F&psig=AOvVaw36Qy12N--FUawWwuCbbPzj&ust=1745763685477000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPiTg9by9YwDFQAAAAAdAAAAABAE)"  />
+<img align="right" height="150" src="[[[[https://i.imgflip.com/65efzo.gif](https://www.google.co.id/url?sa=i&url=https%3A%2F%2Fproeffico.com%2Fdata-analytic%2F&psig=AOvVaw36Qy12N--FUawWwuCbbPzj&ust=1745763685477000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPiTg9by9YwDFQAAAAAdAAAAABAE](https://i.pinimg.com/originals/cf/cf/8c/cfcf8c86a569d30b5dae709551634a5b.gif)](https://i.pinimg.com/originals/cf/cf/8c/cfcf8c86a569d30b5dae709551634a5b.gif)](https://storage.googleapis.com/britech-blog-engineer-bri-3/2022/1/2022-01-19-112742977502-647b341a-e6ee-404d-9b35-b3160df22cfa.jpg)"  />
 
 ###
 
