@@ -1,4 +1,4 @@
-<h2 align="center">Hi 👋! My name is Aqil and I'm from Indonesia</h2>
+<h2 align="center">Hi 👋! My name is Aqil </h2>
 
 ###
 
@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="[https://i.imgflip.com/65efzo.gif](https://www.google.co.id/url?sa=i&url=https%3A%2F%2Fproeffico.com%2Fdata-analytic%2F&psig=AOvVaw36Qy12N--FUawWwuCbbPzj&ust=1745763685477000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPiTg9by9YwDFQAAAAAdAAAAABAE)"  />
 
 ###
 
